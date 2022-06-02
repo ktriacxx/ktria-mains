@@ -8,6 +8,8 @@
 ![alt text](https://cdn.discordapp.com/attachments/981874119136137216/981874840803889202/unknown.png)
 ![alt text](https://cdn.discordapp.com/attachments/975119663623196752/981873801530839060/unknown.png)
 ![alt text](https://cdn.discordapp.com/attachments/981874531117449216/981874973176127550/unknown.png)
+![alt text](https://cdn.discordapp.com/attachments/981874531117449216/981875237371150336/unknown.png)
+![alt text](https://cdn.discordapp.com/attachments/981874531117449216/981875267414929438/unknown.png)
 
 
 
